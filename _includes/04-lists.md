@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+What I like in life:
+
+-Racing Games
+-Pizza(Pepperoni usually)
+-Learning new computer stuff
+-Talking
